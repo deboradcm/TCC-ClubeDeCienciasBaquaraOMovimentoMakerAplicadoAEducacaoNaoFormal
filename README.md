@@ -20,5 +20,5 @@ Débora da Costa Medeiros
 
 ---
 
-Ⓒ [Seu Nome]. Todos os direitos reservados.
+Ⓒ Débora da Costa Medeiros. Todos os direitos reservados.
 
